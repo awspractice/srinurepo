@@ -1,3 +1,5 @@
 hai its my foruth filr=
-so im practiceing git
-so careful..ha ha ha h
+so im pract
+what do u thinking
+ther all are  writhen for merge tool
+so care ful
